@@ -1,5 +1,5 @@
 # NitchLive Dictionary
-## Welcome to nitchlive's twitch chat directory, the page that contains most or at least some messages in the twitch chat.
+## Welcome to nitchlive's twitch chat directory, the page that contains most or at least some messages from the twitch chat.
 
 ### Credits:
 ### Nitchlive's twitch chat - providing the messages
