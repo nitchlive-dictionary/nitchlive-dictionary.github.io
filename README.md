@@ -6,7 +6,7 @@
 ### Nitch/Ash - owner of the Nitchlive channel <img src="nitch.png" alt="icon" width="20" height="20" style="vertical-align: middle;">
 ### Pepperoni - the unprofessional creator of the Nitchlive Dictionary <img src="pepperoni.png" alt="icon" width="20" height="20" style="vertical-align: middle;">
 
-
+############################################
 
 ## CHAT QUOTES:
 1. British people have a lack of dentists - Pepperoni
