@@ -4,7 +4,7 @@
 ### Credits:
 ### Nitchlive's twitch chat - providing the messages <img src="twitch-chat.png" alt="icon" width="20" height="20" style="vertical-align: middle;">
 ### Nitch/Ash - owner of the Nitchlive channel <img src="nitch.png" alt="icon" width="20" height="20" style="vertical-align: middle;">
-### Pepperoni - the unprofessional creator of the Nitchlive Dictionary <img src="pepperoni.png" alt="icon" width="20" height="20" style="vertical-align: middle;">
+### Pepperoni - creator of the Nitchlive Dictionary <img src="pepperoni.png" alt="icon" width="20" height="20" style="vertical-align: middle;">
 
 
 
@@ -31,5 +31,6 @@
 21. If the US Government is watching revolt against IKEA and Swedish meatballs - Connor
 22. Do you like starving children in Venezuela - ???
 
-###### a
-a
+
+
+###### This site was made for keeping funny, weird, or other interesting messages remembered. If your message is in this site and you don't want it to be, feel free to contact me on discord by itlpasta11
