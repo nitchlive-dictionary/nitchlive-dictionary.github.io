@@ -1,8 +1,3 @@
----
-layout: default
-title: Quotes
-permalink: /quotes/
----
 # NitchLive Dictionary
 ## Welcome to nitchlive's twitch chat directory, the page that contains most or at least some messages from the twitch chat.
 
