@@ -3,7 +3,7 @@
 
 ### Credits:
 ### Nitchlive's twitch chat - providing the messages
-### Nitch/Ash - owner of the Nitchlive channel
+### Nitch/Ash - owner of the Nitchlive channel <img src="nitch.png" alt="icon" width="20" height="20" style="vertical-align: middle;">
 ### Pepperoni - the unprofessional creator of the Nitchlive Dictionary
 
 ![Nitch](nitch.png)
