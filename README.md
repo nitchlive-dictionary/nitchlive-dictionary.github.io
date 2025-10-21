@@ -10,8 +10,23 @@
 
 ## CHAT QUOTES:
 1. British people have a lack of dentists - Pepperoni
-3. I could excuse dating 10 year olds but being British is where i draw the line - Bus______
-4. Demented British kid brutally dies off a cliff - Bus______
-5. Russian? What are you in a rush for? - Bus______
+3. I could excuse dating 10 year olds but being British is where i draw the line - Bus
+4. Demented British kid brutally dies off a cliff - Bus
+5. Russian? What are you in a rush for? - Bus
 6. Nitch sold be illegal tea in London - Pepperoni
 7. Nitch is dating underage children? - Pepperoni
+8. Nitch are you autistic or were you just born this way - Lolipop
+9. Autistic is you yes - ???
+10. Sometimes I like to look down on short people…I need to look even lower at Nitch tho. My neck hurts - Vox
+11. So when is the onlyfans happening?? - Shippy
+12. I wish to date Nitchlive….oh wait you are 13? Nvm - ???
+13. Why are you Polish - Mix
+14. Why are you Nitchlive and not Bitchlive - Shippy
+15. Do you like being British - Skyler
+16. I live in your walls Nitchlive - Ray
+17. When will you grow - Fresh
+18. Why are you NOT single - Shippy
+19. Stop pissing everywhere - Alex
+20. Strip mining? More like stripper - Connor
+21. If the US Government is watching revolt against IKEA and Swedish meatballs - Connor
+22. Do you like starving children in Venezuela - ???
