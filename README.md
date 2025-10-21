@@ -15,3 +15,8 @@
 5. Russian? What are you in a rush for? - Bus______
 6. Nitch sold be illegal tea in London - Pepperoni
 7. Nitch is dating underage children? - Pepperoni
+
+
+<p>
+  <span style="background-color: lightblue; color: darkblue;">---NitchLive Dictionary---</span>
+</p>
