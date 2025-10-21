@@ -18,5 +18,5 @@
 
 
 <p>
-  <span style="background-color: lightblue; color: darkblue;">---NitchLive Dictionary---</span>
+  <span style="background-color: darkblue; color: white;">---NitchLive Dictionary---</span>
 </p>
