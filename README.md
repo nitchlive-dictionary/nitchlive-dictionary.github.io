@@ -8,6 +8,8 @@
 
 ![Nitch](nitch.png)
 
+<img src="nitche.png" alt="icon" width="20" height="20" style="vertical-align: middle;"> Text goes here
+
 ## CHAT QUOTES:
 1. British people have a lack of dentists - Pepperoni
 3. I could excuse dating 10 year olds but being British is where i draw the line - Bus______
