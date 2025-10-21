@@ -30,3 +30,6 @@
 20. Strip mining? More like stripper - Connor
 21. If the US Government is watching revolt against IKEA and Swedish meatballs - Connor
 22. Do you like starving children in Venezuela - ???
+
+###### a
+a
