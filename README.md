@@ -8,7 +8,7 @@
 
 ![Nitch](nitch.png)
 
-<img src="nitche.png" alt="icon" width="20" height="20" style="vertical-align: middle;"> Text goes here
+<img src="nitch.png" alt="icon" width="20" height="20" style="vertical-align: middle;"> Text goes here
 
 ## CHAT QUOTES:
 1. British people have a lack of dentists - Pepperoni
