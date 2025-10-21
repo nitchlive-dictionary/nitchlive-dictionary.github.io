@@ -1,3 +1,8 @@
+---
+layout: default
+title: Quotes
+permalink: /quotes/
+---
 # NitchLive Dictionary
 ## Welcome to nitchlive's twitch chat directory, the page that contains most or at least some messages from the twitch chat.
 
@@ -9,8 +14,9 @@
 
 
 ## CHAT QUOTES:
-1. quote - twitch chat
-2. quote - twitch chat
-3. quote - twitch chat
-4. quote - twitch chat
-5. quote - twitch chat
+1. British people have a lack of dentists - Pepperoni
+3. I could excuse dating 10 year olds but being British is where i draw the line - Bus______
+4. Demented British kid brutally dies off a cliff - Bus______
+5. Russian? What are you in a rush for? - Bus______
+6. Nitch sold be illegal tea in London - Pepperoni
+7. Nitch is dating underage children? - Pepperoni
