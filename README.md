@@ -1,4 +1,3 @@
-<div style="background-color: #282c34; padding: 20px; border-radius: 10px;">
 # NitchLive Dictionary
 ## Welcome to nitchlive's twitch chat directory, the page that contains most or at least some messages from the twitch chat.
 
