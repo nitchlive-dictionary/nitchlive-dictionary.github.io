@@ -14,7 +14,7 @@
 3. I could excuse dating 10 year olds but being British is where i draw the line - Bus
 4. Demented British kid brutally dies off a cliff - Bus
 5. Russian? What are you in a rush for? - Bus
-6. Nitch sold be illegal tea in London - Pepperoni
+6. Nitch sold me illegal tea in London - Pepperoni
 7. Nitch is dating underage children? - Pepperoni
 8. Nitch are you autistic or were you just born this way - Lolipop
 9. Autistic is you yes - ???
