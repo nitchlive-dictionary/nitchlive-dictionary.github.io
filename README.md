@@ -36,6 +36,7 @@
 25. Where am I at in the chat quote? - MrGreen
 26. I HAVE NO QUOTES? - SnowBee
 27. BRO I DON'T USE SNAP THAT MUCH (i do stalk people location on it ) - SnowBee
+28. A 40 year old man named nitch that was live on a tour - Nitch
 
 
 ## Honorable Mention:
