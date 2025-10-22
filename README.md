@@ -34,6 +34,7 @@
 23. 1v1 me in Clash Royale - Cactus
 24. Double decker Nitch - Pepperoni
 25. Where am I at in the chat quote? - MrGreen
+26. I HAVE NO QUOTES? - SnowBee
 
 
 ## Honorable Mention:
