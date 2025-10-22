@@ -31,7 +31,8 @@
 20. Strip mining? More like stripper - Connor
 21. If the US Government is watching revolt against IKEA and Swedish meatballs - Connor
 22. Do you like starving children in Venezuela - ???
+23. 1v1 me in Clash Royale - Cactus
 
 
 
-###### This site was made for keeping funny, weird, or other interesting messages remembered. If your message is in this site and you don't want it to be, feel free to contact me on discord by itlpasta11
+###### This site was made for keeping funny, weird, or other interesting messages remembered. If your message is on this page and you don't want it to be, feel free to contact me on discord by itlpasta11
