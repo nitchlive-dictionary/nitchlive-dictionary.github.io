@@ -37,6 +37,7 @@
 ## Honorable Mention:
 1. Pepperoni's collection of Nitch's forhead
 2. IKEA Meatballs
+3. The shrimp chain
 
 
 ###### If your message is on this page and you don't want it to be, feel free to contact me on discord by itlpasta11
