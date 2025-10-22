@@ -35,6 +35,7 @@
 24. Double decker Nitch - Pepperoni
 25. Where am I at in the chat quote? - MrGreen
 26. I HAVE NO QUOTES? - SnowBee
+27. BRO I DON'T USE SNAP THAT MUCH (i do stalk people location on it ) - SnowBee
 
 
 ## Honorable Mention:
