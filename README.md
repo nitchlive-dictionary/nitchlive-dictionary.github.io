@@ -46,4 +46,4 @@
 3. The shrimp chain
 
 
-###### If your message is on this page and you don't want it to be, feel free to contact me on discord by itlpasta11
+###### If your message is on this page and you don't want it to be, feel free to contact me on discord by pepperoni11_
