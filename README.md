@@ -47,5 +47,6 @@
 3. The shrimp chain
 4. Getting 5G internet for nitch in 2026???
 5. Asen Vasilev my beloved <3
+6. Nitch's boat BUDGET.
 
 ###### If your message is on this page and you don't want it to be, feel free to contact me on discord by pepperoni11_
