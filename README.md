@@ -44,6 +44,7 @@
 1. Pepperoni's collection of Nitch's forhead
 2. IKEA Meatballs
 3. The shrimp chain
-
+4. Getting 5G internet for nitch in 2026???
+5. Asen Vasilev my beloved <3
 
 ###### If your message is on this page and you don't want it to be, feel free to contact me on discord by pepperoni11_
